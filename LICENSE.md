@@ -1,4 +1,4 @@
-
+elite Gimp for macOS Preset | collaboration + vector tools is the best Gimp for macOS preset, featuring collaboration and vector tools. Safe, efficient, and optimized for
 
 
 
